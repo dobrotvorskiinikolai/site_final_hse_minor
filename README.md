@@ -1,1 +1,1 @@
-https://dobrotvorskiinikolai.github.io/site_final/
+https://dobrotvorskiinikolai.github.io/site_final_hse_minor/
